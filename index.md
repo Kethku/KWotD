@@ -1,5 +1,6 @@
 ---
 layout: default
 ---
-## Perfidy - /ˈpərfədi/ PURR-fuh-dee
+## 10/15/2024 - Perfidy 
+/ˈpərfədi/ PURR-fuh-dee
 Deceitfulness; Untrustworthiness
