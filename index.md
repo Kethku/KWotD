@@ -8,8 +8,7 @@ Idealistic to the point of impracticality, foolish pursuit of ideas.
 
 > From Don Quixote
 > And it's a fun linguistic twist that we say Don Keehotee but don't say Quihotic
->
->   -Daniel
+-- <cite>Daniel</cite>
 
 ## 8/15/2025 - Bivouac 
 /ˈbɪv(ə)ˌwæk/ BIV-uh-wack
@@ -19,8 +18,7 @@ Improvised temporary shelter often associated with mountain climbers and soldier
 ![Image of two mountain climbers resting in climber's bivouacs. They look like intricately rigged contraptions of ropes and climbing equipment suspended off the side of a cliff. The climbers look very cozy in sleeping bags inside the contraptions.](bivouac.png)
 
 > Magic taught me this one. Great word
->
->   -Alex
+-- <cite>Alex</cite>
 
 ## 8/6/2025 **MINI** - Imperious
 /ᵻmˈpɪriəs/ uhm-PEER-ee-uhss
@@ -36,30 +34,25 @@ Commonly associated with the romantic poets of the time due
 to a handful of high-profile artists being addicted
 
 > Thats the shit thats in amnesia
->
->   -Yves
+-- <cite>Yves</cite>
 
 > I also learned this from amnesia lol
->
->   -Evan
+-- <cite>Evan</cite>
 
 > Oh shit I have a bag of milky ways
->
->   -Derek
+-- <cite>Derek</cite>
 
 ## 6/31/2025 ***Yves BONUS*** - Careworn
 
 Tired and unhappy because of prolonged worry.
 
 > i think maybe i've never been not carewarn
->
->   -Kaylee
+-- <cite>Kaylee</cite>
 
 > Real
 > Worry warts of the world unite
 > And then maybe take a nap
->
->   -Evan
+-- <cite>Evan</cite>
 
 ## 6/15/2025 - Sophistry
 /ˈsɒfɪstri/ SOFF-uh-stree
@@ -78,8 +71,7 @@ Obstructs or harms, hostile in effect
 ## 5/1/2025 ***Andrew BONUS*** - fridge
 
 > "His wife got fridged so hard it almost gave him superpowers" - context I heard it in
->
->   -Andrew
+-- <cite>Andrew</cite>
 
 ## 4/30/2025 ***Kaylee's Humble submission for KWotD Consideration*** - Obsequious
 Obedient or attentive to an excessive or servile degree.
@@ -89,16 +81,13 @@ Obedient or attentive to an excessive or servile degree.
 > Pls understand this is a heavily second rate facsimile of the actual thing. 
 > An homage to the clearly superior original.
 > I stumbled upon this word and it was too good not to share.
->
->   -Kaylee
+-- <cite>Kaylee</cite>
 
 > bein kinda obsequious rn
->
->   -Daniel
+-- <cite>Daniel</cite>
 
 > Get it together Daniel
->
->   -Yves
+-- <cite>Yves</cite>
 
 ## 4/27/2025 - Abnegate 
 /ˈæbnəˌɡeɪt/ AB-nuh-gayt
@@ -106,16 +95,13 @@ Obedient or attentive to an excessive or servile degree.
 Renounce or reject, relinquish something of value.
 
 > fuk u mean halk
->
->   -Kebin
+-- <cite>Kebin</cite>
 
 > relinquish
->
->   -Daniel
+-- <cite>Daniel</cite>
 
 > FUCK
->
->   -Kebin
+-- <cite>Kebin</cite>
 
 ## 4/4/2025 - Saprophytic 
 /ˈsæp.rə.faɪt/ SA-pro-phy-TIC
@@ -126,8 +112,7 @@ decay.
 > guy at the car place points out like 4 identical dings on both sides of my backdoors and says "That happens when people open your door into yours when you're parked"
 > i do the calculations in my head, to ding my backdoor they are opening their backdoor
 > its gotta be the saprophytic trampolene kids just swinging open their doors and bashing mine
->
->   -Andrew
+-- <cite>Andrew</cite>
 
 ## 4/3/2025 - Immiseration
 /ɪˌmɪzərʌɪˈzeɪʃən/ im-iz-uh-righ-ZAY-shuhn
@@ -137,8 +122,7 @@ To make miserable, usually in an economic sense.
 > Eg. "The immoderation of the working class."
 > 
 > fuck
->
->   -Kebin
+-- <cite>Kebin</cite>
 
 ## 2/5/2025 - Irascible
 /ᵻˈræsəbəl/ uh-RASS-uh-buhl
@@ -153,8 +137,7 @@ used describing animal behavior).
 
 > lets go
 > inspired by my dance certainly
->
->   -Andrew
+-- <cite>Andrew</cite>
 
 ## 1/15/2025 - Peripatetic
 /ˌpɛrəpəˈtɛdɪk/ pair-uh-puh-TED-ik
@@ -164,8 +147,7 @@ place, nomadic.
 
 > Your never gonna believe that im currently doing book
 > editing and i needed an exact word like this
->
->   -Yves
+-- <cite>Yves</cite>
 
 ## 1/7/2025 - Perspicacious 
 /ˌpərspəˈkeɪʃəs/ purr-spuh-KAY-shuhss
@@ -174,8 +156,7 @@ Having keen mental perception, understanding, discerning,
 quick to understand, shrewd.
 
 > Just when you thought it might be a bad day we get a KWotD
->
->   -Jonjo
+-- <cite>Jonjo</cite>
 
 ## 1/3/2025 - Mendacious
 /mɛnˈdeɪʃəs/ men-DAY-shuhss
@@ -188,18 +169,15 @@ Falsehood, deception, not being truthful.
 What game had the tightest grip on your life at some point?
 
 > Pre-release gw2 or league i think
->
->   -Jonjo
+-- <cite>Jonjo</cite>
 
 > Either release sc2 or class 2019
->
->   -Daniel
+-- <cite>Daniel</cite>
 
 > Planetside 2 was the first game I was fully bought in to
 > the hype cycle, was farming beta keys through social media
 > with my friends over one summer break
->
->   -Kebin
+-- <cite>Kebin</cite>
 
 ## 12/5/2024 - Peregrination 
 /ˌpɛrəɡrəˈneɪʃən/ pair-uh-gruh-NAY-shuhn
@@ -222,14 +200,12 @@ exuberance.
 > just heard the word "ebullient"
 > potential kevin word of the day here
 > i like the way it sounds
->
->   -Andrew Three Months Later
+-- <cite>Andrew Three Months Later</cite>
 
 > Really imagining us all crawling towards the throne that is Kevin's Word of the Day with our pitiful literary tributes
 > cut down in our insolance the executioner whispers a single phrase before our deaths:
 > "I already knew that word"
->
->   -Evan Also Three Months Later
+-- <cite>Evan Also Three Months Later</cite>
 
 ## 11/14/2024 - Masticate
 /ˈmæstəˌkeɪt/ MASS-tuh-kayt
@@ -237,20 +213,17 @@ exuberance.
 To chew; munch
 
 > I first learned that word by reading My Immortal, the hp fanfic) 
->
->   -Yves
+-- <cite>Yves</cite>
 
 > literally the same
->
->   -Andrew
+-- <cite>Andrew</cite>
 
 ## 11/14/2024 ***Daniel Bonus*** - Sitzpinkler
 /ˈzɪt͡sˌpɪŋklɐ/
 
 A man who pees sitting down.
 > This cannot be real.
->
->   -Kebin
+-- <cite>Kebin</cite>
 
 ## 11/13/2024 - Dilettante
 /ˈdɪləˌtɑnt/ DIL-uh-tahnt or /ˈdɪləˌtænt/ DIL-uh-tant
@@ -272,8 +245,7 @@ Person who is self-indulgent in their fondness for sensuous
 luxury.
 
 > Sybarite is a cool word that sounds like a rock 
->
->   -Derek
+-- <cite>Derek</cite>
 
 ## 10/31/2024 - Ineffable
 /ɪnˈɛfəb(ə)l/ in-EFF-uh-buhl
