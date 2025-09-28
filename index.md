@@ -8,8 +8,8 @@ Idealistic to the point of impracticality, foolish pursuit of ideas.
 
 > From Don Quixote
 > And it's a fun linguistic twist that we say Don Keehotee but don't say Quihotic
-
--- <cite>Daniel</cite>
+>
+> -- <cite>Daniel</cite>
 
 ---
 
@@ -21,8 +21,8 @@ Improvised temporary shelter often associated with mountain climbers and soldier
 ![Image of two mountain climbers resting in climber's bivouacs. They look like intricately rigged contraptions of ropes and climbing equipment suspended off the side of a cliff. The climbers look very cozy in sleeping bags inside the contraptions.](bivouac.png)
 
 > Magic taught me this one. Great word
-
--- <cite>Alex</cite>
+>
+> -- <cite>Alex</cite>
 
 ---
 
@@ -42,16 +42,16 @@ Commonly associated with the romantic poets of the time due
 to a handful of high-profile artists being addicted
 
 > Thats the shit thats in amnesia
-
--- <cite>Yves</cite>
+>
+> -- <cite>Yves</cite>
 
 > I also learned this from amnesia lol
-
--- <cite>Evan</cite>
+>
+> -- <cite>Evan</cite>
 
 > Oh shit I have a bag of milky ways
-
--- <cite>Derek</cite>
+>
+> -- <cite>Derek</cite>
 
 ---
 
@@ -60,14 +60,14 @@ to a handful of high-profile artists being addicted
 Tired and unhappy because of prolonged worry.
 
 > i think maybe i've never been not carewarn
-
--- <cite>Kaylee</cite>
+>
+> -- <cite>Kaylee</cite>
 
 > Real
 > Worry warts of the world unite
 > And then maybe take a nap
-
--- <cite>Evan</cite>
+>
+> -- <cite>Evan</cite>
 
 ---
 
@@ -92,8 +92,8 @@ Obstructs or harms, hostile in effect
 ## 5/1/2025 ***Andrew BONUS*** - fridge
 
 > "His wife got fridged so hard it almost gave him superpowers" - context I heard it in
-
--- <cite>Andrew</cite>
+>
+> -- <cite>Andrew</cite>
 
 ---
 
@@ -105,16 +105,16 @@ Obedient or attentive to an excessive or servile degree.
 > Pls understand this is a heavily second rate facsimile of the actual thing. 
 > An homage to the clearly superior original.
 > I stumbled upon this word and it was too good not to share.
-
--- <cite>Kaylee</cite>
+>
+> -- <cite>Kaylee</cite>
 
 > bein kinda obsequious rn
-
--- <cite>Daniel</cite>
+>
+> -- <cite>Daniel</cite>
 
 > Get it together Daniel
-
--- <cite>Yves</cite>
+>
+> -- <cite>Yves</cite>
 
 ---
 
@@ -124,16 +124,16 @@ Obedient or attentive to an excessive or servile degree.
 Renounce or reject, relinquish something of value.
 
 > fuk u mean halk
-
--- <cite>Kebin</cite>
+>
+> -- <cite>Kebin</cite>
 
 > relinquish
-
--- <cite>Daniel</cite>
+>
+> -- <cite>Daniel</cite>
 
 > FUCK
-
--- <cite>Kebin</cite>
+>
+> -- <cite>Kebin</cite>
 
 ---
 
@@ -146,8 +146,8 @@ decay.
 > guy at the car place points out like 4 identical dings on both sides of my backdoors and says "That happens when people open your door into yours when you're parked"
 > i do the calculations in my head, to ding my backdoor they are opening their backdoor
 > its gotta be the saprophytic trampolene kids just swinging open their doors and bashing mine
-
--- <cite>Andrew</cite>
+>
+> -- <cite>Andrew</cite>
 
 ---
 
@@ -159,8 +159,8 @@ To make miserable, usually in an economic sense.
 > Eg. "The immoderation of the working class."
 > 
 > fuck
-
--- <cite>Kebin</cite>
+>
+> -- <cite>Kebin</cite>
 
 ---
 
@@ -177,8 +177,8 @@ used describing animal behavior).
 
 > lets go
 > inspired by my dance certainly
-
--- <cite>Andrew</cite>
+>
+> -- <cite>Andrew</cite>
 
 ---
 
@@ -190,8 +190,8 @@ place, nomadic.
 
 > Your never gonna believe that im currently doing book
 > editing and i needed an exact word like this
-
--- <cite>Yves</cite>
+>
+> -- <cite>Yves</cite>
 
 ---
 
@@ -202,8 +202,8 @@ Having keen mental perception, understanding, discerning,
 quick to understand, shrewd.
 
 > Just when you thought it might be a bad day we get a KWotD
-
--- <cite>Jonjo</cite>
+>
+> -- <cite>Jonjo</cite>
 
 ---
 
@@ -220,18 +220,18 @@ Falsehood, deception, not being truthful.
 What game had the tightest grip on your life at some point?
 
 > Pre-release gw2 or league i think
-
--- <cite>Jonjo</cite>
+>
+> -- <cite>Jonjo</cite>
 
 > Either release sc2 or class 2019
-
--- <cite>Daniel</cite>
+>
+> -- <cite>Daniel</cite>
 
 > Planetside 2 was the first game I was fully bought in to
 > the hype cycle, was farming beta keys through social media
 > with my friends over one summer break
-
--- <cite>Kebin</cite>
+>
+> -- <cite>Kebin</cite>
 
 ---
 
@@ -260,14 +260,14 @@ exuberance.
 > just heard the word "ebullient"
 > potential kevin word of the day here
 > i like the way it sounds
-
--- <cite>Andrew Three Months Later</cite>
+>
+> -- <cite>Andrew Three Months Later</cite>
 
 > Really imagining us all crawling towards the throne that is Kevin's Word of the Day with our pitiful literary tributes
 > cut down in our insolance the executioner whispers a single phrase before our deaths:
 > "I already knew that word"
-
--- <cite>Evan Also Three Months Later</cite>
+>
+> -- <cite>Evan Also Three Months Later</cite>
 
 ---
 
@@ -277,12 +277,12 @@ exuberance.
 To chew; munch
 
 > I first learned that word by reading My Immortal, the hp fanfic) 
-
--- <cite>Yves</cite>
+>
+> -- <cite>Yves</cite>
 
 > literally the same
-
--- <cite>Andrew</cite>
+>
+> -- <cite>Andrew</cite>
 
 ## 11/14/2024 ***Daniel Bonus*** - Sitzpinkler
 /ˈzɪt͡sˌpɪŋklɐ/
@@ -290,8 +290,8 @@ To chew; munch
 A man who pees sitting down.
 
 > This cannot be real.
-
--- <cite>Kebin</cite>
+>
+> -- <cite>Kebin</cite>
 
 ---
 
@@ -317,8 +317,8 @@ Person who is self-indulgent in their fondness for sensuous
 luxury.
 
 > Sybarite is a cool word that sounds like a rock 
-
--- <cite>Derek</cite>
+>
+> -- <cite>Derek</cite>
 
 ---
 
