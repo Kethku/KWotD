@@ -6,9 +6,8 @@ layout: default
 
 Idealistic to the point of impracticality, foolish pursuit of ideas.
 
-> From Don Quixote
-> And it's a fun linguistic twist that we say Don Keehotee but don't say Quihotic
->
+> From Don Quixote\
+> And it's a fun linguistic twist that we say Don Keehotee but don't say Quihotic\
 > -- <cite>Daniel</cite>
 
 ---
@@ -20,8 +19,7 @@ Improvised temporary shelter often associated with mountain climbers and soldier
 
 ![Image of two mountain climbers resting in climber's bivouacs. They look like intricately rigged contraptions of ropes and climbing equipment suspended off the side of a cliff. The climbers look very cozy in sleeping bags inside the contraptions.](bivouac.png)
 
-> Magic taught me this one. Great word
->
+> Magic taught me this one. Great word\
 > -- <cite>Alex</cite>
 
 ---
@@ -41,16 +39,13 @@ readily available pain-killer and sedative pre-aspirin.
 Commonly associated with the romantic poets of the time due
 to a handful of high-profile artists being addicted
 
-> Thats the shit thats in amnesia
->
+> Thats the shit thats in amnesia\
 > -- <cite>Yves</cite>
 
-> I also learned this from amnesia lol
->
+> I also learned this from amnesia lol\
 > -- <cite>Evan</cite>
 
-> Oh shit I have a bag of milky ways
->
+> Oh shit I have a bag of milky ways\
 > -- <cite>Derek</cite>
 
 ---
@@ -59,14 +54,12 @@ to a handful of high-profile artists being addicted
 
 Tired and unhappy because of prolonged worry.
 
-> i think maybe i've never been not carewarn
->
+> i think maybe i've never been not carewarn\
 > -- <cite>Kaylee</cite>
 
-> Real
-> Worry warts of the world unite
-> And then maybe take a nap
->
+> Real\
+> Worry warts of the world unite\
+> And then maybe take a nap\
 > -- <cite>Evan</cite>
 
 ---
@@ -91,8 +84,7 @@ Obstructs or harms, hostile in effect
 
 ## 5/1/2025 ***Andrew BONUS*** - fridge
 
-> "His wife got fridged so hard it almost gave him superpowers" - context I heard it in
->
+> "His wife got fridged so hard it almost gave him superpowers" - context I heard it in\
 > -- <cite>Andrew</cite>
 
 ---
@@ -102,18 +94,15 @@ Obedient or attentive to an excessive or servile degree.
 
 > I bet that new obsequious mode in ChatGPT is really fun when you're having a manic episode.
 
-> Pls understand this is a heavily second rate facsimile of the actual thing. 
-> An homage to the clearly superior original.
-> I stumbled upon this word and it was too good not to share.
->
+> Pls understand this is a heavily second rate facsimile of the actual thing.\
+> An homage to the clearly superior original.\
+> I stumbled upon this word and it was too good not to share.\
 > -- <cite>Kaylee</cite>
 
-> bein kinda obsequious rn
->
+> bein kinda obsequious rn\
 > -- <cite>Daniel</cite>
 
-> Get it together Daniel
->
+> Get it together Daniel\
 > -- <cite>Yves</cite>
 
 ---
@@ -123,16 +112,13 @@ Obedient or attentive to an excessive or servile degree.
 
 Renounce or reject, relinquish something of value.
 
-> fuk u mean halk
->
+> fuk u mean halk\
 > -- <cite>Kebin</cite>
 
-> relinquish
->
+> relinquish\
 > -- <cite>Daniel</cite>
 
-> FUCK
->
+> FUCK\
 > -- <cite>Kebin</cite>
 
 ---
@@ -143,10 +129,9 @@ Renounce or reject, relinquish something of value.
 Obtaining nutrients from dead matter, fungus, feasting on
 decay.
 
-> guy at the car place points out like 4 identical dings on both sides of my backdoors and says "That happens when people open your door into yours when you're parked"
-> i do the calculations in my head, to ding my backdoor they are opening their backdoor
-> its gotta be the saprophytic trampolene kids just swinging open their doors and bashing mine
->
+> guy at the car place points out like 4 identical dings on both sides of my backdoors and says "That happens when people open your door into yours when you're parked"\
+> i do the calculations in my head, to ding my backdoor they are opening their backdoor\
+> its gotta be the saprophytic trampolene kids just swinging open their doors and bashing mine\
 > -- <cite>Andrew</cite>
 
 ---
@@ -156,10 +141,9 @@ decay.
 
 To make miserable, usually in an economic sense.
 
-> Eg. "The immoderation of the working class."
-> 
-> fuck
->
+> Eg. "The immoderation of the working class."\
+> **five halks**\
+> fuck\
 > -- <cite>Kebin</cite>
 
 ---
@@ -175,9 +159,8 @@ Hot temper, easily provoked, irritable.
 Of or relating to twilight, active during twilight (commonly
 used describing animal behavior).
 
-> lets go
-> inspired by my dance certainly
->
+> lets go\
+> inspired by my dance certainly\
 > -- <cite>Andrew</cite>
 
 ---
@@ -189,8 +172,7 @@ Relating to walking, moving or traveling from place to
 place, nomadic.
 
 > Your never gonna believe that im currently doing book
-> editing and i needed an exact word like this
->
+> editing and i needed an exact word like this\
 > -- <cite>Yves</cite>
 
 ---
@@ -201,8 +183,8 @@ place, nomadic.
 Having keen mental perception, understanding, discerning,
 quick to understand, shrewd.
 
-> Just when you thought it might be a bad day we get a KWotD
->
+> Just when you thought it might be a bad day we get a
+> KWotD\
 > -- <cite>Jonjo</cite>
 
 ---
@@ -219,18 +201,15 @@ Falsehood, deception, not being truthful.
 ## 12/15/2024 Derek's ***Question of the Moon***
 What game had the tightest grip on your life at some point?
 
-> Pre-release gw2 or league i think
->
+> Pre-release gw2 or league i think\
 > -- <cite>Jonjo</cite>
 
-> Either release sc2 or class 2019
->
+> Either release sc2 or class 2019\
 > -- <cite>Daniel</cite>
 
 > Planetside 2 was the first game I was fully bought in to
 > the hype cycle, was farming beta keys through social media
-> with my friends over one summer break
->
+> with my friends over one summer break\
 > -- <cite>Kebin</cite>
 
 ---
@@ -259,14 +238,12 @@ exuberance.
 
 > just heard the word "ebullient"
 > potential kevin word of the day here
-> i like the way it sounds
->
+> i like the way it sounds\
 > -- <cite>Andrew Three Months Later</cite>
 
 > Really imagining us all crawling towards the throne that is Kevin's Word of the Day with our pitiful literary tributes
 > cut down in our insolance the executioner whispers a single phrase before our deaths:
-> "I already knew that word"
->
+> "I already knew that word"\
 > -- <cite>Evan Also Three Months Later</cite>
 
 ---
@@ -276,12 +253,10 @@ exuberance.
 
 To chew; munch
 
-> I first learned that word by reading My Immortal, the hp fanfic) 
->
+> I first learned that word by reading My Immortal, the hp fanfic)\
 > -- <cite>Yves</cite>
 
-> literally the same
->
+> literally the same\
 > -- <cite>Andrew</cite>
 
 ## 11/14/2024 ***Daniel Bonus*** - Sitzpinkler
@@ -289,8 +264,7 @@ To chew; munch
 
 A man who pees sitting down.
 
-> This cannot be real.
->
+> This cannot be real.\
 > -- <cite>Kebin</cite>
 
 ---
@@ -316,8 +290,7 @@ An aristocratic girl who has reached marriage-age and is ready to “debut” to
 Person who is self-indulgent in their fondness for sensuous
 luxury.
 
-> Sybarite is a cool word that sounds like a rock 
->
+> Sybarite is a cool word that sounds like a rock\
 > -- <cite>Derek</cite>
 
 ---
