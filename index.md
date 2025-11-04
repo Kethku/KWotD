@@ -1,6 +1,14 @@
 ---
 layout: default
 ---
+
+## 11/4/2025 - Copacetic
+/kəʊpəˈsɛtɪk/ koh-puh-SET-ik or /kəʊpəˈsiːtɪk/ koh-puh-SEE-tick
+
+Very satisfactory, hunky dory
+
+---
+ 
 ## 9/27/2025 - Quixotic
 /kwɪkˈsɑdɪk/ kwick-SAH-dick or /kiˈ(h)oʊdɪk/ kee-HOH-dick
 
