@@ -7,6 +7,14 @@ layout: default
 
 Very satisfactory, hunky dory
 
+> probably in the top 10 list of words that you'd expect to have a 
+> very specific origin in academia or something but its actually a 
+> folk word with no etymological consensus\
+> -- <cite>Jonjo</cite>
+
+> Whoah never seen that\
+> -- <cite>Daniel</cite>
+
 ---
  
 ## 9/27/2025 - Quixotic
