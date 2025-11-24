@@ -2,6 +2,17 @@
 layout: default
 ---
 
+## 11/24/2025 - Abjure
+/æbˈdʒʊ(ə)r/ ab-JOOR or /əbˈdʒʊ(ə)r/ uhb-JOOR
+
+To solemnly renounce, retract an oath or faith.
+
+> From Crit role campaign 4 ep 7
+> "I abjure you! I abjure you!
+> -- <cite>Kebin</cite>
+
+---
+
 ## 11/4/2025 - Copacetic
 /kəʊpəˈsɛtɪk/ koh-puh-SET-ik or /kəʊpəˈsiːtɪk/ koh-puh-SEE-tick
 
