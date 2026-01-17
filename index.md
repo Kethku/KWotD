@@ -2,6 +2,19 @@
 layout: default
 ---
 
+# 1/16/2026 - Picayune
+/ˌpɪkəˈjun/ pick-uh-YOON or /ˌpɪkiˈjun/ pick-ee-YOON
+
+Of little value or significance, petty.
+
+> It raises a mildly problematic - if admittedly picayune -
+> continuity issue
+
+> Was this from little drummer girl?
+> -- <cite>Daniel</cite>
+
+---
+
 ## 11/24/2025 - Abjure
 /æbˈdʒʊ(ə)r/ ab-JOOR or /əbˈdʒʊ(ə)r/ uhb-JOOR
 
