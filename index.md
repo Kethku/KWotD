@@ -2,6 +2,20 @@
 layout: default
 ---
 
+# 2/3/2026 - Autodidact
+/ˌɔdəˈdaɪˌdæk(t)/ aw-duh-DIGH-dackt or /ˌɔdoʊˈdaɪˌdæk(t)/ aw-doh-DIGH-dackt
+
+Self-taught person
+
+> From the new ep of disco elysium doc
+
+> i could listen to him talk for hours
+> -- <cite>Kebin</cite>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-eUtrUW2QVU?si=N6egpelBRPDmHoeR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+---
+
 # 1/16/2026 - Picayune
 /ˌpɪkəˈjun/ pick-uh-YOON or /ˌpɪkiˈjun/ pick-ee-YOON
 
