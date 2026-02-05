@@ -2,6 +2,24 @@
 layout: default
 ---
 
+# 2/5/2026 ***Andrew BONUS?*** - Spoom
+/spuːm/ SPOOM
+
+https://en.wikipedia.org/wiki/Spoom
+
+A glass of lime-flavoured spoom 
+
+Ronny Graupe Spoom
+
+![An image that just says Ronny Graupe Spoom with a clipart-esque background and font](spoom.png)
+
+> thing is if i add this to the site then id have to add
+> penetralia and i feel like there has to be a line
+> somewhere
+> -- <cite>Kaylee</cite>
+
+---
+
 # 2/3/2026 - Autodidact
 /ˌɔdəˈdaɪˌdæk(t)/ aw-duh-DIGH-dackt or /ˌɔdoʊˈdaɪˌdæk(t)/ aw-doh-DIGH-dackt
 
@@ -13,6 +31,27 @@ Self-taught person
 > -- <cite>Kebin</cite>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-eUtrUW2QVU?si=N6egpelBRPDmHoeR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+---
+
+# 1/27/2026 ***Daniel BONUS?*** - Penetralia
+/ˌpɛnəˈtreɪljə/ pen-uh-TRAY-lyuh or /ˌpɛnəˈtreɪliə/ pen-uh-TRAY-lee-uh
+
+the innermost parts
+
+> thats a fucked up word but its probably by design so kudos
+> to the chef
+> -- <cite>Jonjo</cite>
+
+> it's from 1668
+> -- <cite>Daniel</cite>
+
+> ah so its just fucked up...
+> gotcha
+> -- <cite>Kaylee</cite>
+
+> I think it should really be "the innermost sanctum"
+> -- <cite>Daniel</cite>
 
 ---
 
