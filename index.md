@@ -2,7 +2,36 @@
 layout: default
 ---
 
-# 2/5/2026 ***Andrew BONUS?*** - Spoom
+## 3/11/2026 - Acephalous
+/eɪˈsɛfələs/ ay-SEFF-uh-luhss
+
+headless, lacking leadership
+
+> "All venues of public speech crowded out by acephalous
+> zombie words shambling onwards with no significance,
+> nothing behind the wheel"\
+> from discussions of an article where people failed to
+> distinguish between AI writing and famous authors
+
+---
+
+## 2/17/2026 - Prevaricate 
+/priˈvɛrəˌkeɪt/ pree-VAIR-uh-kayt or /prəˈvɛrəˌkeɪt/ pruh-VAIR-uh-kayt
+
+Deviating from the truth, muddying the waters to obfuscate the truth. Similar to equivocate,
+which is to avoid the truth using double meanings.
+
+> from the latest Quinns Quest review, "I think there's been
+> too much prevarication in the past two reviews. I'm back
+> to what I'm best at- which is selling you some dynamite"
+
+> It can also be to avoid committing yourself to a position,
+> which is how Quinn is probably using it.\
+> -- <cite>Daniel</cite>
+
+---
+
+## 2/5/2026 ***Andrew BONUS?*** - Spoom
 /spuːm/ SPOOM
 
 https://en.wikipedia.org/wiki/Spoom
@@ -15,47 +44,47 @@ Ronny Graupe Spoom
 
 > thing is if i add this to the site then id have to add
 > penetralia and i feel like there has to be a line
-> somewhere
+> somewhere\
 > -- <cite>Kaylee</cite>
 
 ---
 
-# 2/3/2026 - Autodidact
+## 2/3/2026 - Autodidact
 /ˌɔdəˈdaɪˌdæk(t)/ aw-duh-DIGH-dackt or /ˌɔdoʊˈdaɪˌdæk(t)/ aw-doh-DIGH-dackt
 
 Self-taught person
 
 > From the new ep of disco elysium doc
 
-> i could listen to him talk for hours
+> i could listen to him talk for hours\
 > -- <cite>Kebin</cite>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-eUtrUW2QVU?si=N6egpelBRPDmHoeR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ---
 
-# 1/27/2026 ***Daniel BONUS?*** - Penetralia
+## 1/27/2026 ***Daniel BONUS?*** - Penetralia
 /ˌpɛnəˈtreɪljə/ pen-uh-TRAY-lyuh or /ˌpɛnəˈtreɪliə/ pen-uh-TRAY-lee-uh
 
 the innermost parts
 
 > thats a fucked up word but its probably by design so kudos
-> to the chef
+> to the chef\
 > -- <cite>Jonjo</cite>
 
-> it's from 1668
+> it's from 1668\
 > -- <cite>Daniel</cite>
 
-> ah so its just fucked up...
-> gotcha
+> ah so its just fucked up...\
+> gotcha\
 > -- <cite>Kaylee</cite>
 
-> I think it should really be "the innermost sanctum"
+> I think it should really be "the innermost sanctum"\
 > -- <cite>Daniel</cite>
 
 ---
 
-# 1/16/2026 - Picayune
+## 1/16/2026 - Picayune
 /ˌpɪkəˈjun/ pick-uh-YOON or /ˌpɪkiˈjun/ pick-ee-YOON
 
 Of little value or significance, petty.
@@ -63,7 +92,7 @@ Of little value or significance, petty.
 > It raises a mildly problematic - if admittedly picayune -
 > continuity issue
 
-> Was this from little drummer girl?
+> Was this from little drummer girl?\
 > -- <cite>Daniel</cite>
 
 ---
@@ -73,8 +102,8 @@ Of little value or significance, petty.
 
 To solemnly renounce, retract an oath or faith.
 
-> From Crit role campaign 4 ep 7
-> "I abjure you! I abjure you!
+> From Crit role campaign 4 ep 7\
+> "I abjure you! I abjure you!\
 > -- <cite>Kebin</cite>
 
 ---
