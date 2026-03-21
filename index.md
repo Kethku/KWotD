@@ -2,6 +2,21 @@
 layout: default
 ---
 
+## 3/16/2026 Venality
+/viˈnælədi/ vee-NAL-uh-dee or /vəˈnælədi/ vuh-NAL-uh-dee
+
+Quality of being venal, to act dishosestly in exchange for
+money.
+
+> "The stupidity and venality of politicians"\
+> From Mark Fisher's Ghosts of My Life
+
+> Absurdly topical -- <cite>Daniel</cite>
+
+![A picture taken from a cell phone of a fragment of a page of a book with the text ... "that Merlin is venal. That's an"...](venality.jpg)
+
+---
+
 ## 3/11/2026 - Acephalous
 /eɪˈsɛfələs/ ay-SEFF-uh-luhss
 
