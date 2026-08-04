@@ -2,6 +2,27 @@
 layout: default
 ---
 
+## 8/3/2026 - Voluble
+/ˈvɑljəb(ə)l/ VAH-lyuh-buhl
+
+Talking fluently, rapid easy speech.
+
+---
+
+## 6/9/2026 - Oneiric
+/oʊˈnaɪrɪk/ oh-NIGH-rick
+
+Dreamlike, relating to or suggestive of dreams.
+
+> Been seeing this one a couple times to describe movies
+> like the lighthouse\
+> -- <cite>Kebin</cite>
+
+> In the witcher 3 you work with an oneiromancer\
+> -- <cite>Daniel</cite>
+
+---
+
 ## 3/16/2026 Venality
 /viˈnælədi/ vee-NAL-uh-dee or /vəˈnælədi/ vuh-NAL-uh-dee
 
@@ -11,7 +32,8 @@ money.
 > "The stupidity and venality of politicians"\
 > From Mark Fisher's Ghosts of My Life
 
-> Absurdly topical -- <cite>Daniel</cite>
+> Absurdly topical \
+> -- <cite>Daniel</cite>
 
 ![A picture taken from a cell phone of a fragment of a page of a book with the text ... "that Merlin is venal. That's an"...](venality.jpg)
 
