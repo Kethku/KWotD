@@ -2,6 +2,30 @@
 layout: default
 ---
 
+## 8/17/2026 - Lascivious
+/ləˈsɪviəs/ luh-SIV-ee-uhss
+
+Overt lustfulness, showing sexual desire, lewd.
+
+> "I'm about to dress up as a horse for you. Not in like a
+> weird lascivious way"\
+> -- <Cite>Yusong, a mahjong YouTuber complaining to Yostar
+> after dealing in</cite>
+
+> That's a word I truly have no idea how to pronounce.\
+> -- <cite>Daniel</cite>
+
+> It's a deceptive one\
+> -- <cite>Kebin</cite>
+
+> Only read never heard spoken\
+> -- <cite>Daniel</cite>
+
+> La-siv-e-ous right?\
+> -- <cite>Evan</cite>
+
+---
+
 ## 8/3/2026 - Voluble
 /ˈvɑljəb(ə)l/ VAH-lyuh-buhl
 
@@ -477,7 +501,8 @@ Sharply or bitingly critical, sarcastic, ironic in temper
 mood or tone.
 
 > More than the content, it was the acerbic nature of Kevin's 
-> Oldhead reviews that cemented him a place at the annual Hater's Ball
+> Oldhead reviews that cemented him a place at the annual Hater's Ball\
+> -- <cite>Daniel</cite>
 
 ---
 
