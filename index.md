@@ -268,7 +268,34 @@ Obstructs or harms, hostile in effect
 ## 5/1/2025 ***Andrew BONUS*** - fridge
 
 > "His wife got fridged so hard it almost gave him superpowers" - context I heard it in\
+> <https://en.m.wikipedia.org/wiki/Women_in_refrigerators>\
 > -- <cite>Andrew</cite>
+
+> That quote is a very funny way to make fun of fridging\
+> -- <cite>Evan</cite>
+
+> red rising alerttt\
+> -- <cite>Yves</cite>
+
+> Didn't realize there was such a specific term already
+> coined to describe this its so perfect\
+> His wife gets fridged and forgetten so fast I actually
+> forgot it even happened
+> -- <cite>Andrew</cite>
+
+> She truly just had a sign around her neck that said "must
+> be refrigerated after introducing"\
+> -- <cite>Evan</cite>
+
+> that's why I didn't finish arcane\
+> I remember now\
+> I was too angry\
+> -- <cite>Daniel</cite>
+
+> yeah that was awful\
+> on some disney star wars in that it ripples back into the
+> themes of the first season in a really terrible way\
+> -- <cite>Jonjo</cite>
 
 ---
 
@@ -287,6 +314,9 @@ Obedient or attentive to an excessive or servile degree.
 
 > Get it together Daniel\
 > -- <cite>Yves</cite>
+
+> I cannot\
+> -- <cite>Daniel</cite>
 
 ---
 
